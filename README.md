@@ -1,1 +1,1 @@
-# Exerc-cio-DER
+# Exercicio-DER
